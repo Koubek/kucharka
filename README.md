@@ -1,1 +1,1 @@
-# kucharka
+# Moje kuchařka, moje recepty :)
